@@ -1,4 +1,4 @@
-### Hi there 👋
+### I hate kids with anime profile pics
 
 <!--
 **Anuiel/Anuiel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
